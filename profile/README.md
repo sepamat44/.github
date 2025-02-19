@@ -11,4 +11,6 @@ Pour toute question ou suggestion, contactez-nous via notre [page de contact](ht
 
 ---
 
-> *"La voiture la plus écologique est celle que l’on partage."*
+> La voiture la plus écologique est celle que l’on partage.
+
+— Denis Maure
